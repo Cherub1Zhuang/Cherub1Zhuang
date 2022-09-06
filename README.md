@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Cherub1Zhuang
 - 👀 Email:zxw@cumt.edu.cn
-- 🌱 
+- 🌱 Wechat official account（微信公众号）:贝贝IT（Cherub1Zhuang）
 - 💞️ 
 - 📫 
 <!---
